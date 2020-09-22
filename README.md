@@ -1,2 +1,3 @@
 # Game-Repository-
-Me like make games games good yes
+Me like make games games good yes...
+I am an interdimensional potato that long ago transcended physicality, i use a human sleeve to function in this reality field.
